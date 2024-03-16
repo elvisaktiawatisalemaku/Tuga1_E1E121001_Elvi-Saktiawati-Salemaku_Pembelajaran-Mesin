@@ -1,0 +1,1 @@
+# Tuga1_E1E121001_Elvi-Saktiawati-Salemaku_Pembelajaran-Mesin
